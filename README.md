@@ -2,7 +2,6 @@
 
 <img src=https://64.media.tumblr.com/8c8be68f053e18b5282834e895dee0c2/ac7ca9e806546f3b-a7/s640x960/632acd36c90f95407fe2769d1156233301facaa4.pnj style="position: absolute; width: 450px; height: 100px;">
 
-
 <ch1>⤷ ゛Aᑲ᥆ᥙ𝗍 mᥱ ˎˊ˗‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  𓂃                        ⸝⸝⟢<br><ch1>
 I only recently began coding, October 2025, I started off mainly only learning to<br>
 customise better and to build my own personal site. But as I made my way through the<br>
@@ -13,3 +12,7 @@ Again, because I am a newbie, I am still getting the hang of github I dont plan<
 for employment I just like the idea of showcasing my projects. And also because <br>
 I love overdecorating so much I doubt I could ever be professional on such open-sourced<br>
 sites. (ᵕ- ᴗ -)<br>
+<br>
+
+<img src=https://44.media.tumblr.com/e97f5285433e17d19a182173af6d5fef/594a4945a8fe68ec-7f/s640x960_f1/d94c1f249f01e4c55beecbe1ab2de4e2c7fec3ae.gifv style="position: absolute;">
+<img src="https://44.media.tumblr.com/b9164f555cdd66261880827c0501bf16/594a4945a8fe68ec-d6/s640x960_f1/9960fe5351b2ee99fd15f2cbff87d5ce56059654.gifv" style="position: absolute; width: 670px; height: 30px;">
