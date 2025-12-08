@@ -1,6 +1,6 @@
 
 
-<img src=https://64.media.tumblr.com/8c8be68f053e18b5282834e895dee0c2/ac7ca9e806546f3b-a7/s640x960/632acd36c90f95407fe2769d1156233301facaa4.pnj style="position: absolute; width: 450px; height: 100px;">
+<img src=https://64.media.tumblr.com/8c8be68f053e18b5282834e895dee0c2/ac7ca9e806546f3b-a7/s640x960/632acd36c90f95407fe2769d1156233301facaa4.pnj style="position: absolute; width: 450px; height: 100px;"> 
 
 <ch1>⤷ ゛Aᑲ᥆ᥙ𝗍 mᥱ ˎˊ˗‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  𓂃                        ⸝⸝⟢<br><ch1>
 I only recently began coding, October 2025, I started off mainly only learning to<br>
@@ -24,4 +24,7 @@ sites. (ᵕ- ᴗ -)<br>
 
 <h3> ‎ ‎ ‎ ‎  ࣪ ˖ 𝕺𝗍һᥱr s᥆ᥴіᥲᥣs !𖦹°⋆</h3>
 
+{ <a href="https://stars-of-flesh.neocities.org">𝐍𝐞𝐨𝐜𝐢𝐭𝐢𝐞𝐬/𝐖𝐞𝐛𝐬𝐢𝐭𝐞</a>‎ ‎ ‎ ‎‎ ‎ ‎✮ ‎ ‎ ‎ ‎ <a href="https://www.tiktok.com/@celestial_felidae?_r=1&_t=ZN-923v5AIzfFO">𝐓𝐢𝐤𝐭𝐨𝐤</a> }<br>
+
+<img src="https://64.media.tumblr.com/5e6dcc3d99d047f7457c4713e45a12de/e4eccd3b03350099-51/s640x960/683198cc896f24a8d8266f1ca3d657292d14c244.pnj" style="width: 460px; margin-left: 20px;">
 
