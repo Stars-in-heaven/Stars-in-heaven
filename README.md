@@ -18,7 +18,7 @@ sites. (ᵕ- ᴗ -)<br>
 <img src="https://44.media.tumblr.com/b9164f555cdd66261880827c0501bf16/594a4945a8fe68ec-d6/s640x960_f1/9960fe5351b2ee99fd15f2cbff87d5ce56059654.gifv" style="position: absolute; width: 670px; height: 30px;">
 
 <h3>‎ ‎ ‎ ‎ ‎ ‎printf("𝐓ᥱᥴһ s𝗍ᯤᥴk :"); </h3><p>
-‎ ‎ ‎ ‎ <img src="https://raw.githubusercontent.com/tandpfun/skill-icons/main/icons/Arduino.svg" style="width: 30px; padding: 10px;">       <img src="https://raw.githubusercontent.com/tandpfun/skill-icons/main/icons/C.svg" style="width: 30px; padding: 10px;">    <img src="https://raw.githubusercontent.com/tandpfun/skill-icons/65dea6c4eaca7da319e552c09f4cf5a9a8dab2c8/icons/HTML.svg" style="width: 30px; padding: 10px;">       <img src="https://raw.githubusercontent.com/tandpfun/skill-icons/main/icons/VSCode-Dark.svg" style="width: 30px; padding: 10px;">    
+‎ ‎ ‎ ‎ <img src="https://raw.githubusercontent.com/tandpfun/skill-icons/main/icons/Arduino.svg" style="width: 30px; padding: 10px;">       <img src="https://raw.githubusercontent.com/tandpfun/skill-icons/main/icons/C.svg" style="width: 30px; padding: 10px;">    <img src="https://raw.githubusercontent.com/tandpfun/skill-icons/65dea6c4eaca7da319e552c09f4cf5a9a8dab2c8/icons/HTML.svg" style="width: 30px; padding: 10px;">       <img src="https://raw.githubusercontent.com/tandpfun/skill-icons/main/icons/VSCode-Dark.svg" style="width: 30px; padding: 10px;">    <img src="https://raw.githubusercontent.com/tandpfun/skill-icons/65dea6c4eaca7da319e552c09f4cf5a9a8dab2c8/icons/JavaScript.svg" style="width: 30px; padding: 10px;">    <img src="https://raw.githubusercontent.com/tandpfun/skill-icons/65dea6c4eaca7da319e552c09f4cf5a9a8dab2c8/icons/CSS.svg" style="width: 30px; padding: 10px;">    
 ‎ <br>
 <br>
 
