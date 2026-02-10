@@ -25,7 +25,7 @@ professional on such open-sourced sites. (ᵕ- ᴗ -)<br>
 
 <h3> ‎ ‎ ‎ ‎  ࣪ ˖ 𝕺𝗍һᥱr s᥆ᥴіᥲᥣs !𖦹°⋆</h3>
 
-{ <a href="https://stars-of-flesh.neocities.org">𝐍𝐞𝐨𝐜𝐢𝐭𝐢𝐞𝐬/𝐖𝐞𝐛𝐬𝐢𝐭𝐞</a>‎ ‎ ‎ ‎‎ ‎ ‎✮ ‎ ‎ ‎ ‎ <a href="https://www.tiktok.com/@celestial_felidae?_r=1&_t=ZN-923v5AIzfFO">𝐓𝐢𝐤𝐭𝐨𝐤</a> }<br>
+{ <a href="https://stars-of-flesh.neocities.org">𝐍𝐞𝐨𝐜𝐢𝐭𝐢𝐞𝐬/𝐖𝐞𝐛𝐬𝐢𝐭𝐞 (currently paused)</a>‎ ‎ ‎ ‎‎ ‎ ‎✮ ‎ ‎ ‎ ‎ <a href="https://www.tiktok.com/@celestial_felidae?_r=1&_t=ZN-923v5AIzfFO">𝐓𝐢𝐤𝐭𝐨𝐤</a> }<br>
 
 <img src="https://64.media.tumblr.com/5e6dcc3d99d047f7457c4713e45a12de/e4eccd3b03350099-51/s640x960/683198cc896f24a8d8266f1ca3d657292d14c244.pnj" style="width: 460px; margin-left: 20px;">
 
