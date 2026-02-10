@@ -4,14 +4,15 @@
 
 <ch1>⤷ ゛Aᑲ᥆ᥙ𝗍 mᥱ ˎˊ˗‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  𓂃                        ⸝⸝⟢<br><ch1>
 I only recently began coding, October 2025, I started off mainly only learning to<br>
-customise better and to build my own personal site. But as I made my way through the<br>
+customise better and to build my own persona444l site. But as I made my way through the<br>
 HTML rabbit hole. I ended up getting into the C programing language, with the hopes<br>
-of getting into hardware. As of right now im mainly working with arduinos.<br>
+of getting into hardware. As of right now im past knowing just the basics but I wouldn't<br>
+exactly say ive mastered it.<br>
 
-Again, because I am a newbie, I am still getting the hang of github I dont plan<br>
-for employment I just like the idea of showcasing my projects. And also because <br>
-I love overdecorating so much I doubt I could ever be professional on such open-sourced<br>
-sites. (ᵕ- ᴗ -)<br>
+Again, because I am a newbie, I am still getting the hang of github i still dont full<br>
+understand how it works. But I dont plan for employment I just like the idea of showcasing<br>
+my projects. And also because I love overdecorating so much I doubt I could ever be<br>
+professional on such open-sourced sites. (ᵕ- ᴗ -)<br>
 <br>
 
 <img src=https://44.media.tumblr.com/e97f5285433e17d19a182173af6d5fef/594a4945a8fe68ec-7f/s640x960_f1/d94c1f249f01e4c55beecbe1ab2de4e2c7fec3ae.gifv style="position: absolute;">
